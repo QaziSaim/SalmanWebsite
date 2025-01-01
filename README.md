@@ -52,3 +52,6 @@ Discover the Gauri Interior difference and transform your house into a home that
 
 Contact us today to schedule a consultation.
 
+
+
+
